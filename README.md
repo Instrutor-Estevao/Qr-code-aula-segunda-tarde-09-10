@@ -1,0 +1,1 @@
+# Qr-code-aula-segunda-tarde-09-10
